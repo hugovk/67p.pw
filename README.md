@@ -1,4 +1,4 @@
-# [67P.space](http://67p.space)
+# [67P.pw](http://67p.pw)
 
 Say hello to 67P.
 
@@ -6,7 +6,7 @@ Say hello to 67P.
 
 67P is here when you need it.
 
- * **[67P.space](http://67p.space)**
+ * **[67P.pw](http://67p.pw)**
 
 Say hello to others in the constellation:
 
